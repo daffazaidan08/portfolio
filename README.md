@@ -1,1 +1,1 @@
-This is Daffa Ihsan Zaidan's portfolio.
+Hi! This is Daffa Ihsan Zaidan's portfolio.
